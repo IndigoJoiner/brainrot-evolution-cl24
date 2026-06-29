@@ -1,4 +1,4 @@
-#  
+#  Experience brainrot evolution like never before with brainrot evolution no-ban Script, the #1 Script. Includes custom skins and anti-ban for
 
 
 
